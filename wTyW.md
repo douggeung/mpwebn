@@ -1,0 +1,101 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月05日 02时02分19秒(UTC+8)</strong></p><br><hr><br><h2>一、国内时政</h2><br><h3>海康威视AI转型进展：传统安防龙头的第二成长曲线。</h3><br><p>紫金矿业创阶段新高3.2%，铜金产量持续超预期。<br><br> | 来源：<code>www.blog.jinzituliao.com.cn/Article/details/906207.sHtML
+</code></p><br><br><h3>中国中冶冶金工程高增，单季业绩预告超预期</h3><br><p>跨境电商综合试验区扩容，跨境物流板块集体上涨。<br><br> | 来源：<code>www.blog.elmanana.cn/Article/details/349834.sHtML
+</code></p><br><br><h3>亿纬锂能放量上涨6.4%，储能电池出货量翻倍</h3><br><p>海洋牧场建设规划，海洋渔业板块集体上涨<br><br> | 来源：<code>www.blog.xjjinghua.cn/Article/details/929256.sHtML
+</code></p><br><br><h3>深股通席位单日买入圣邦股份7500万，模拟芯片标的增持</h3><br><p>游资知名席位联手买入浙江建投1.6亿，基建标的获资金追捧<br><br> | 来源：<code>m.read.qiandaohutour.cn/Article/details/701276.sHtML
+</code></p><br><br><h3>QFII大幅加仓低空经济龙头，单季度持股翻倍引市场关注</h3><br><p>万科A异动拉升，地产链反弹的关键位与风控思路<br><br> | 来源：<code>m.read.sugouhsk.com.cn/Article/details/630971.sHtML
+</code></p><br><br><h3>保险资管举牌机器人减速器标的，核心零部件获机构重仓</h3><br><p>宝钢股份绿色低碳优势：钢铁行业碳中和下的领先地位<br><br> | 来源：<code>m.read.xitanfoodstuff.com.cn/Article/details/690343.sHtML
+</code></p><br><br><h3>QFII新进汽车芯片标的，MCU国产替代获海外机构看好。</h3><br><p>北向资金大额扫货紫金矿业3.5亿，黄金龙头获外资持续流入。<br><br> | 来源：<code>m.read.idtrade.com.cn/Article/details/843484.sHtML
+</code></p><br><br><h3>中微公司放量拉升6.2%，刻蚀设备订单持续落地。</h3><br><p>外资机构席位净买入中国交建5700万，基建龙头获外资加仓<br><br> | 来源：<code>m.read.microlinoptics.com.cn/Article/details/811997.sHtML
+</code></p><br><br><h3>钠离子电池材料价格上涨8%，钠电池产业链盈利优化。</h3><br><p>头部机构组团到访核电设备龙头，新机组中标订单披露<br><br> | 来源：<code>m.read.imotion.store/Article/details/925394.sHtML
+</code></p><br><br><h3>超160家机构到访锂电回收龙头，回收处理产能利用率超90%</h3><br><p>种业振兴行动方案落地，种业标的全线异动<br><br> | 来源：<code>m.read.redq.top/Article/details/375108.sHtML
+</code></p><br><br><h3>外资持续流入中芯国际，半导体龙头持仓占比突破5%</h3><br><p>高管团队集体增持工业AI龙头，合计增持金额超2.3亿<br><br> | 来源：<code>m.read.sxygg.top/Article/details/126026.sHtML
+</code></p><br><br><h3>控股股东耗资2.5亿增持储能电池标的，彰显海外订单信心</h3><br><p>四川路桥异动拉升3.8%，四川区域基建订单爆发<br><br> | 来源：<code>m.read.gzfeiwei.com/Article/details/850764.sHtML
+</code></p><br><br><h3>北向资金大额扫货大金重工5100万，塔筒龙头获外资流入</h3><br><p>硅锰价格单月上涨9%，铁合金板块盈利改善<br><br> | 来源：<code>m.read.518jj.com/Article/details/308280.sHtML
+</code></p><br><br><h3>企业中长期贷款利率创历史新低，制造业资本开支回升。</h3><br><p>汽车数据安全管理新规，汽车软件板块集体上涨<br><br> | 来源：<code>m.read.souyuanzj.com/Article/details/297009.sHtML
+</code></p><br><br><h3>央行宣布全面降准0.5个百分点，释放长期资金超万亿。</h3><br><p>宝钢股份涨超3.1%，板材价格企稳回升<br><br> | 来源：<code>m.read.cxsx.pro/Article/details/601461.sHtML
+</code></p><br><br><h3>北向资金连续加仓通威股份，光伏龙头获外资长线布局。</h3><br><p>北向资金举牌人形机器人标的，持股比例首次突破5%红线<br><br> | 来源：<code>m.read.yimeiyuan.top/Article/details/393431.sHtML
+</code></p><br><br><h3>QFII新进汽车芯片标的，MCU国产替代获海外机构看好。</h3><br><p>中国通号高铁信号技术：全球轨交信号系统龙头的壁垒<br><br> | 来源：<code>m.read.aosoft.cn/Article/details/664206.sHtML
+</code></p><br><br><h3>海康威视AI业务高增，单季净利润同比增45%。</h3><br><p>天齐锂业涨超5.8%，锂矿自给率优势持续凸显<br><br> | 来源：<code>m.read.matebao.cn/Article/details/715061.sHtML
+</code></p><br><br><h3>产业资本集中增持锂电铜箔龙头，极薄铜箔技术获资本布局。</h3><br><p>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升。<br><br> | 来源：<code>m.read.laijiangkj.cn/Article/details/663460.sHtML
+</code></p><br><br><h3>百亿级机构组团到访低空经济龙头，低空试飞进展获披露。</h3><br><p>洽洽食品坚果品类拓展：传统炒货企业的成长第二曲线。<br><br> | 来源：<code>m.read.induspi.cn/Article/details/853739.sHtML
+</code></p><br><br><h3>超200家机构到访锂电铜箔龙头，4.5μm极薄铜箔量产。</h3><br><p>北向资金单日净流入超150亿，降息后外资加速入场。<br><br> | 来源：<code>m.read.wudiyadaikuan.cn/Article/details/478687.sHtML
+</code></p><br><br><h3>天际股份锂电材料业务：传统化工企业的转型成长逻辑。</h3><br><p>泸州老窖国窖批价上调6%，区域白酒龙头盈利改善。<br><br> | 来源：<code>m.read.91zhuang.cn/Article/details/760792.sHtML
+</code></p><br><br><h3>薯片产品价格上调4%，零食板块迎来涨价催化。</h3><br><p>超200家机构到访锂电铜箔龙头，4.5μm极薄铜箔量产。<br><br> | 来源：<code>m.read.xingkelvye.cn/Article/details/516093.sHtML
+</code></p><br><br><h3>中国平安权重护盘，大金融板块托底A股指数</h3><br><p>宝钢股份涨超3.1%，板材价格企稳回升。<br><br> | 来源：<code>m.read.careborn.com.cn/Article/details/389150.sHtML
+</code></p><br><br><h3>存量房贷利率集中下调，居民消费能力有望边际改善</h3><br><p>浪潮信息AI服务器出货超预期，单季业绩预增150%<br><br> | 来源：<code>m.read.jinzituliao.com.cn/Article/details/293768.sHtML
+</code></p><br><br><h3>超250家机构到访AI大模型企业，ToB付费转化率超预期。</h3><br><p>机构资金集中买入华域汽车7800万，零部件龙头获抱团<br><br> | 来源：<code>m.read.elmanana.cn/Article/details/694127.sHtML
+</code></p><br><br><h3>地方国资战略入股卫星互联网标的，助力星座组网建设。</h3><br><p>高股息板块持续受宠：银行、保险、煤炭的配置价值分析。<br><br> | 来源：<code>m.read.xjjinghua.cn/Article/details/012228.sHtML
+</code></p><br><br><h3>公募基金集中调研储能温控龙头，海外客户拓展引关注。</h3><br><p>万科A地产行业格局：龙头房企的抗风险能力与复苏空间<br><br>| 来源：<code>m.qiandaohutour.cn/Article/details/115752.sHtML
+</code></p><br><br><br><h2>二、民生社会</h2><br><h3>地方国资战略入股氢能燃料电池标的，助力商用车推广落地。</h3><br><p>国产光刻机交付突破，半导体设备板块全线大涨。<br><br> | 来源：<code>m.sugouhsk.com.cn/Article/details/259894.sHtML
+</code></p><br><br><h3>QFII集中调研海上风电标的，深远海项目订单引热议</h3><br><p>中国交建海外订单落地，前三季度业绩预增超18%。<br><br> | 来源：<code>m.xitanfoodstuff.com.cn/Article/details/018286.sHtML
+</code></p><br><br><h3>许继电气特高压订单落地，单季业绩预告超预期</h3><br><p>宝钢股份企稳回升，低位标的的补涨机会分析<br><br> | 来源：<code>m.idtrade.com.cn/Article/details/290813.sHtML
+</code></p><br><br><h3>浙江建投区域基建优势：浙江基建龙头的区域资源壁垒</h3><br><p>许继电气特高压布局：特高压产业链核心标的的成长逻辑<br><br> | 来源：<code>m.microlinoptics.com.cn/Article/details/634300.sHtML
+</code></p><br><br><h3>新能源汽车购置税减免延期，整车板块集体走强</h3><br><p>神州高铁放量上涨3.7%，轨道交通运维业务增长<br><br> | 来源：<code>m.imotion.store/Article/details/418856.sHtML
+</code></p><br><br><h3>锂价连续反弹三个月，锂矿板块集体走强</h3><br><p>QFII大幅加仓预制菜龙头，B端渠道扩张获海外机构看好<br><br> | 来源：<code>m.redq.top/Article/details/937655.sHtML
+</code></p><br><br><h3>陕西煤业高股息兑现，单季业绩预告超预期。</h3><br><p>鸡蛋价格季节性上涨10%，蛋鸡养殖板块盈利改善。<br><br> | 来源：<code>m.sxygg.top/Article/details/005550.sHtML
+</code></p><br><br><h3>基金公司集体到访氢能储运龙头，高压储氢瓶订单爆发。</h3><br><p>京沪高铁暑运客流超预期，单季业绩预增超100%<br><br> | 来源：<code>m.gzfeiwei.com/Article/details/559434.sHtML
+</code></p><br><br><h3>万科A异动，地产链政策宽松预期持续升温。</h3><br><p>全面降准叠加LPR下调，市场流动性环境显著优化<br><br> | 来源：<code>m.518jj.com/Article/details/877956.sHtML
+</code></p><br><br><h3>北方稀土异动拉升5.4%，稀土产品价格反弹。</h3><br><p>海外对冲基金集中调研CXO龙头，新签订单增速超预期<br><br> | 来源：<code>m.souyuanzj.com/Article/details/032808.sHtML
+</code></p><br><br><h3>阳光电源海外逆变器爆发，前三季度业绩预增110%。</h3><br><p>中国西电异动拉升3.6%，输配电设备集团整合加速<br><br> | 来源：<code>m.cxsx.pro/Article/details/553775.sHtML
+</code></p><br><br><h3>万科A异动，地产链政策宽松预期持续升温。</h3><br><p>存量房贷利率下调释放居民现金流，可选消费板块受益<br><br> | 来源：<code>m.yimeiyuan.top/Article/details/934280.sHtML
+</code></p><br><br><h3>交控科技城轨信号优势：国内城轨信号系统的国产替代。</h3><br><p>北向资金连续加仓赣锋锂业，锂矿龙头获外资持续流入<br><br> | 来源：<code>m.aosoft.cn/Article/details/456731.sHtML
+</code></p><br><br><h3>派能科技户用储能爆发，单季业绩预告超预期。</h3><br><p>降准资金定向支持半导体产业，芯片板块获流动性利好<br><br> | 来源：<code>m.matebao.cn/Article/details/477175.sHtML
+</code></p><br><br><h3>央行加大公开市场操作力度，资金面维持平稳宽松。</h3><br><p>农药价格开启新一轮涨价，农化板块盈利弹性释放。<br><br> | 来源：<code>m.laijiangkj.cn/Article/details/287107.sHtML
+</code></p><br><br><h3>海尔智家稳步上行，慢牛趋势下的持仓节奏。</h3><br><p>知名私募大手笔增持数字人民币标的，持仓占比突破3%。<br><br> | 来源：<code>m.induspi.cn/Article/details/335705.sHtML
+</code></p><br><br><h3>游资知名席位联手买入固德威5000万，储能标的获追捧。</h3><br><p>控股股东耗资2.8亿增持创新药龙头，核心管线临床进展获信心。<br><br> | 来源：<code>m.wudiyadaikuan.cn/Article/details/456661.sHtML
+</code></p><br><br><h3>机构资金联手买入洽洽食品5800万，食品龙头获机构抱团。</h3><br><p>保险资管扎堆调研CRO龙头，创新药管线临床数据披露。<br><br> | 来源：<code>m.91zhuang.cn/Article/details/049471.sHtML
+</code></p><br><br><h3>当升科技正极材料海外布局：高镍正极的全球份额扩张。</h3><br><p>牧原股份养殖成本控制：生猪养殖龙头的核心竞争力。<br><br> | 来源：<code>m.xingkelvye.cn/Article/details/018405.sHtML
+</code></p><br><br><h3>被动元器件价格集体上涨，电子板块盈利边际改善</h3><br><p>药明康德海外订单爆发，前三季度业绩预增超60%。<br><br> | 来源：<code>m.careborn.com.cn/Article/details/604226.sHtML
+</code></p><br><br><h3>中国中车涨超3.3%，海外轨交订单持续落地</h3><br><p>头部机构组团到访医美耗材龙头，新品获批进度超预期<br><br> | 来源：<code>m.jinzituliao.com.cn/Article/details/934816.sHtML
+</code></p><br><br><h3>浪潮信息AI服务器产能：算力需求爆发下的业绩弹性。</h3><br><p>机构资金集中买入海大集团6300万，饲料龙头获机构抱团<br><br> | 来源：<code>m.elmanana.cn/Article/details/735068.sHtML
+</code></p><br><br><h3>大北农异动拉升3.7%，种业业务贡献新增量。</h3><br><p>正泰电器户用光伏装机超预期，前三季度业绩预增超25%。<br><br> | 来源：<code>m.xjjinghua.cn/Article/details/568910.sHtML
+</code></p><br><br><h3>保险资管扎堆调研绿电运营标的，电价弹性空间引热议。</h3><br><p>外资机构集中调研存储芯片龙头，海外订单情况成焦点<br><br>| 来源：<code>www.shaer.qiandaohutour.cn/Article/details/634250.sHtML
+</code></code></p><br><br><br><h2>三、科技生活</h2><br><h3>山东路桥放量上涨3.5%，基建订单持续饱满。</h3><br><p>知名私募调研低空飞行器标的，eVTOL适航认证进度披露。<br><br> | 来源：<code>www.shaer.sugouhsk.com.cn/Article/details/590524.sHtML
+</code></p><br><br><h3>中微公司刻蚀设备技术：半导体设备细分龙头的核心壁垒</h3><br><p>企业中长期贷款增速回升，宽信用效果逐步显现。<br><br> | 来源：<code>www.shaer.xitanfoodstuff.com.cn/Article/details/116366.sHtML
+</code></p><br><br><h3>创新药医保谈判落地，创新药板块迎来情绪修复</h3><br><p>房地产融资白名单出台，优质房企板块走强<br><br> | 来源：<code>www.shaer.idtrade.com.cn/Article/details/231623.sHtML
+</code></p><br><br><h3>蔚来汽车放量上涨8.8%，换电网络覆盖持续扩大</h3><br><p>头部券商调研固态电池标的，下一代技术落地时间表曝光<br><br> | 来源：<code>www.shaer.microlinoptics.com.cn/Article/details/159103.sHtML
+</code></p><br><br><h3>东方财富用户粘性：互联网金融平台的流量沉淀逻辑</h3><br><p>知名私募组团调研MR产业链标的，新品备货数据曝光<br><br> | 来源：<code>www.shaer.imotion.store/Article/details/479098.sHtML
+</code></p><br><br><h3>北向资金连续调研后举牌智能电网标的，外资持续流入</h3><br><p>外资机构席位净买入恒瑞医药2.4亿，创新药龙头获外资加仓<br><br> | 来源：<code>www.shaer.redq.top/Article/details/399690.sHtML
+</code></p><br><br><h3>社保基金现身存储模组龙头，AI存储产品出货量超预期。</h3><br><p>特变电工新能源盈利高增，单季业绩预告超预期。<br><br> | 来源：<code>www.shaer.sxygg.top/Article/details/054530.sHtML
+</code></p><br><br><h3>伊利股份涨超3.2%，乳制品行业需求回暖。</h3><br><p>QFII集中调研国产EDA企业，全流程工具突破引关注<br><br> | 来源：<code>www.shaer.gzfeiwei.com/Article/details/282948.sHtML
+</code></p><br><br><h3>外资准入政策放宽，外资偏好标的全线拉升。</h3><br><p>北向资金连续5日加仓贵州茅台，持仓占比创历史新高<br><br> | 来源：<code>www.shaer.518jj.com/Article/details/096532.sHtML
+</code></p><br><br><h3>钴价连续上涨13%，3C电池板块盈利提升。</h3><br><p>钾肥价格连续上涨10%，钾肥板块盈利弹性释放<br><br> | 来源：<code>www.shaer.souyuanzj.com/Article/details/460443.sHtML
+</code></p><br><br><h3>实控人兜底式增持AI大模型标的，员工参与规模超预期。</h3><br><p>比亚迪AH股同步走强，新能源整车板块领涨两市<br><br> | 来源：<code>www.shaer.cxsx.pro/Article/details/777939.sHtML
+</code></p><br><br><h3>容百科技放量拉升5.5%，高镍正极渗透率持续提升。</h3><br><p>地震应急响应升级，灾后重建板块异动<br><br> | 来源：<code>www.shaer.yimeiyuan.top/Article/details/492058.sHtML
+</code></p><br><br><h3>东方盛虹EVA树脂优势：光伏胶膜原料龙头的景气受益。</h3><br><p>比亚迪垂直整合优势：供应链自主可控下的抗风险能力<br><br> | 来源：<code>www.shaer.aosoft.cn/Article/details/100530.sHtML
+</code></p><br><br><h3>外资机构席位净买入中国电建1.1亿，绿电运营龙头获外资加仓。</h3><br><p>被动元器件价格集体上涨，电子板块盈利边际改善<br><br> | 来源：<code>www.shaer.matebao.cn/Article/details/116452.sHtML
+</code></p><br><br><h3>NOR Flash价格上调10%，闪存芯片板块盈利弹性释放。</h3><br><p>江特电机锂矿资源优势：云母提锂龙头的盈利弹性解析。<br><br> | 来源：<code>www.shaer.laijiangkj.cn/Article/details/378523.sHtML
+</code></p><br><br><h3>人民币汇率升值叠加美联储降息，航空造纸板块集体异动。</h3><br><p>房贷利率下调后二手房成交回暖，家居家电需求回升。<br><br> | 来源：<code>www.shaer.induspi.cn/Article/details/172606.sHtML
+</code></p><br><br><h3>锂电铝箔价格上调5%，铝箔上市公司盈利弹性释放。</h3><br><p>头部机构组团到访风电轴承龙头，大兆瓦轴承市占率提升。<br><br> | 来源：<code>www.shaer.wudiyadaikuan.cn/Article/details/486964.sHtML
+</code></p><br><br><h3>贵州茅台站稳1720元，批价回升带动板块情绪。</h3><br><p>地方国资战略入股种业龙头，助力生物育种商业化落地。<br><br> | 来源：<code>www.shaer.91zhuang.cn/Article/details/477418.sHtML
+</code></p><br><br><h3>机构专用席位大额买入招商银行2.5亿，银行龙头获机构增持。</h3><br><p>头部机构组团到访核电设备龙头，新机组中标订单披露。<br><br> | 来源：<code>www.shaer.xingkelvye.cn/Article/details/331655.sHtML
+</code></p><br><br><h3>亚运会赛事热度超预期，体育产业板块全线上涨</h3><br><p>三一重工涨超4.1%，海外工程机械订单高增。<br><br> | 来源：<code>www.shaer.careborn.com.cn/Article/details/590331.sHtML
+</code></p><br><br><h3>钯价连续上涨9%，汽车尾气催化板块盈利改善</h3><br><p>药明康德客户粘性优势：全球Big Pharma的深度合作逻辑<br><br> | 来源：<code>www.shaer.jinzituliao.com.cn/Article/details/996232.sHtML
+</code></p><br><br><h3>澜起科技内存接口芯片优势：全球细分赛道的龙头价值。</h3><br><p>美联储连续第二次降息，北向资金单日净流入超百亿<br><br> | 来源：<code>www.shaer.elmanana.cn/Article/details/872900.sHtML
+</code></p><br><br><h3>中国电建新能源电站运营：电力工程龙头的第二成长曲线。</h3><br><p>存量房贷利率下调后居民消费回升，旅游酒店板块受益。<br><br> | 来源：<code>www.shaer.xjjinghua.cn/Article/details/382359.sHtML
+</code></p><br><br><h3>机构席位大额买入通威股份2.9亿，光伏龙头获长线资金布局。</h3><br><p>QFII新进跨境电商龙头，海外机构看好出口高增长逻辑<br><br>| 来源：<code>www.blog.qiandaohutour.cn/Article/details/952879.sHtML
+</code></code></p><br><br><br><h2>四、国际热点</h2><br><h3>房贷利率下调后二手房成交回暖，家居家电需求回升。</h3><br><p>除草剂价格单月上涨15%，农药龙头盈利修复超预期。<br><br> | 来源：<code>www.blog.sugouhsk.com.cn/Article/details/030033.sHtML
+</code></p><br><br><h3>国电南瑞放量上涨3.8%，电网自动化业务高增</h3><br><p>医美监管政策优化，医美消费标的全线拉升。<br><br> | 来源：<code>www.blog.xitanfoodstuff.com.cn/Article/details/608935.sHtML
+</code></p><br><br><h3>五粮液批价上涨5%，次高端白酒板块迎来行情</h3><br><p>多氟多涨超5.2%，六氟磷酸锂价格触底反弹<br><br> | 来源：<code>www.blog.idtrade.com.cn/Article/details/734455.sHtML
+</code></p><br><br><h3>中芯国际晶圆制造国产替代：14nm及以下制程的突破路径</h3><br><p>钾肥价格连续上涨10%，钾肥板块盈利弹性释放<br><br> | 来源：<code>www.blog.microlinoptics.com.cn/Article/details/418174.sHtML
+</code></p><br><br><h3>中际旭创客户优势：全球云厂商的深度绑定合作关系</h3><br><p>福建高速异动拉升2.2%，海西地区车流量回暖<br><br> | 来源：<code>www.blog.imotion.store/Article/details/078974.sHtML
+</code></p><br><br><h3>大股东耗资4.5亿增持碳化硅衬底龙头，助力6英寸产能扩张</h3><br><p>海外对冲基金组团调研广告营销龙头，AI营销订单同比大增<br><br> | 来源：<code>www.blog.redq.top/Article/details/897031.sHtML
+</code></p><br><br><h3>市场永远不缺机会，缺的是耐心等待属于自己的机会。</h3><br><p>5年期LPR下调带动房企开发贷利率下行，房企盈利改善。<br><br> | 来源：<code>www.blog.sxygg.top/Article/details/848953.sHtML
+</code></p><br><br><h3>碳化硅衬底标的登陆科创板，6英寸衬底产能全球领先。</h3><br><p>兆易创新存储芯片优势：国产NOR Flash龙头的成长路径<br><br> | 来源：<code>www.blog.gzfeiwei.com/Article/details/789622.sHtML
+</code></p><br><br><h3>机构专用席位净买入温氏股份7400万，养殖龙头获长线加仓。</h3><br><p>养老金新进创新药龙头，布局创新管线长期成长逻辑<br><br> | 来源：<code>www.blog.518jj.com/Article/details/630845.sHtML
+</code></p><br><br><h3>券商研究所扎堆调研智能电网标的，特高压设备中标数据。</h3><br><p>恒瑞医药创新药放量，前三季度业绩预增超40%<br><br> | 来源：<code>www.blog.souyuanzj.com/Article/details/478927.sHtML
+</code></p><br><br><h3>外资准入政策放宽，外资偏好标的全线拉升。</h3><br><p>天津建投异动拉升2.8%，天津基建投资持续增长<br><br> | 来源：<code>www.blog.cxsx.pro/Article/details/769067.sHtML
+</code></p><br><br><h3>实控人承诺12个月内不减持智慧矿山标的，稳定市场预期。</h3><br><p>美联储降息后全球流动性宽松，成长板块估值抬升<br><br> | 来源：<code>www.blog.yimeiyuan.top/Article/details/034899.sHtML
+</code></p><br><br><h3>宁德时代跳空高开6.4%，麒麟电池商业化落地加速。</h3><br><p>高管团队集体增持宠物食品龙头，合计增持超6500万<br><br> | 来源：<code>www.blog.aosoft.cn/Article/details/924365.sHtML
+</code></p><br><br><h3>中兴通讯通信技术积累：6G时代的核心竞争力展望。</h3><br><p>高管团队集体增持智慧交通标的，合计增持金额超1.2亿<br><br> | 来源：<code>www.blog.matebao.cn/Article/details/027837.sHtML
+</code></p><br><br><h3>高管团队集体增持短视频出海标的，合计增持超9000万。</h3><br><p>海产品全产业链涨价，水产板块全面异动。<br><br> | 来源：<code>www.blog.laijiangkj.cn/Article/details/851272.sHtML
+</code></p><br><br><h3>保险资管举牌工业软件龙头，研发设计软件国产替代获重仓。</h3><br><p>公募基金集体到访钙钛矿光伏企业，量产进度超市场预期。<br><br> | 来源：<code>www.blog.induspi.cn/Article/details/249719.sHtML
+</code></p><br><br><h3>东北振兴政策升级，东北本地股板块走强。</h3><br><p>新宙邦涨超4.5%，电解液盈利预期改善。<br><br> | 来源：<code>www.blog.wudiyadaikuan.cn/Article/details/501333.sHtML
+</code></p><br><br><h3>机构资金集中买入牧原股份2.5亿，养殖龙头获机构抱团。</h3><br><p>赣锋锂业固态电池布局：全球锂矿龙头的技术储备优势。<br><br> | 来源：<code>www.blog.91zhuang.cn/Article/details/204483.sHtML
+</code></p><br><br><h3>北京君正涨超5.3%，车载存储芯片需求爆发。</h3><br><p>沪股通席位单日买入中国平安4亿，大金融龙头获外资增持。<br><br> | 来源：<code>www.blog.xingkelvye.cn/Article/details/474539.sHtML
+</code></p><br><br><h3>地方国资战略入股种业龙头，助力生物育种商业化落地</h3><br><p>大金重工放量上涨5.7%，风电塔筒全球份额领先。<br><br> | 来源：<code>www.blog.careborn.com.cn/Article/details/144299.sHtML
+</code></p><br><br><h3>头部券商到访家电出海龙头，海外自主品牌占比突破40%</h3><br><p>新希望全产业链布局：从饲料到养殖的协同优势解析<br><br> | 来源：<code>www.blog.jinzituliao.com.cn/Article/details/595536.sHtML
+</code></p><br><br><h3>陕西煤业高股息兑现，单季业绩预告超预期。</h3><br><p>机构专用席位大额买入招商银行2.5亿，银行龙头获机构增持<br><br> | 来源：<code>www.blog.elmanana.cn/Article/details/796993.sHtML
+</code></p><br><br><h3>亨通光电海洋能源布局：光通信龙头的第二成长曲线。</h3><br><p>动力电池级碳酸锂报价单日上涨2000元/吨，产业链回暖信号显现。<br><br> | 来源：<code>www.blog.xjjinghua.cn/Article/details/560786.sHtML
+</code></p><br><br><h3>产业资本连续增持储能温控龙头，产业链上下游协同布局。</h3><br><p>实控人溢价15%增持碳纤维企业，传递长期发展信心<br><br>| 来源：<code>m.read.qiandaohutour.cn/Article/details/018981.sHtML
+</code></code></p><br><br><br><h2>
